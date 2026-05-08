@@ -30,7 +30,7 @@ Research from Opendoor highlights that kitchen upgrades remain one of the highes
 
 Flooring affects the overall luxury feel of a home. Italian marble, wooden textures, and large-format tiles make apartments look more spacious and elegant.
 
-[ACE Han’ei](https://acegroupindia.com/pdf/ACE_HANEI_Brochure.pdf)includes high-end specifications like Italian marble flooring, helping create a premium visual identity throughout the home.
+[ACE Han’ei](https://acegroupindia.com/pdf/ACE_HANEI_Brochure.pdf) includes high-end specifications like Italian marble flooring, helping create a premium visual identity throughout the home.
 
 ### Branded Bathroom Fittings
 
